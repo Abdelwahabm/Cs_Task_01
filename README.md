@@ -1,2 +1,2 @@
 Task_2 drive link
-https://drive.google.com/file/d/1x_CwVjA4JPr4NDUnE9b1CQ5rXVg4D3lX/view?usp=sharing
+https://drive.google.com/drive/folders/1eV4Iq6IzZrsmaxBKatxauI3NQozehbt4?usp=drive_link
